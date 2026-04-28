@@ -1,0 +1,1 @@
+# SMS-MAN-Review-2026-is-0.01-SMS-activation-actually-reliable-
